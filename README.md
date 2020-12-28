@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-#Hello(https://mr2donya.github.io/Mr2donya/)
+[My resume](https://mr2donya.github.io/Mr2donya/)
